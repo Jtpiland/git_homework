@@ -11,3 +11,6 @@ Shoutout:
 - Too many for just one!
   * Shoutout to my boss for being very understanding and flexible during my first week of this new journey!
   * Special shoutout to my partner who has been so great helping take on more than her share of the responsibility in taking care of our 4.5 month old puppy "Clifton"
+
+
+I'm adding more thoughts here.
